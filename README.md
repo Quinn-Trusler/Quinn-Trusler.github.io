@@ -1,1 +1,1 @@
-# Quinn-Trusler.github.io
+# QuinnTrusler
